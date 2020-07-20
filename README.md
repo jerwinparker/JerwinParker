@@ -12,5 +12,5 @@
 
 📫 How to reach me: jerwinparker@ssw.com.au
 
-Cheers, 
+Cheers!
 ### Jerwin

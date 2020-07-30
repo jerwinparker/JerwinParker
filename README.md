@@ -11,6 +11,8 @@
 
 📫 How to reach me: jerwinparker@ssw.com.au
 
+I love fitness technology! :D 
+
 https://www.ssw.com.au/people/jerwin-parker
 
 Cheers!

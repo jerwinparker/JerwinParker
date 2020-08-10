@@ -1,5 +1,5 @@
 ### Hi there 👋
-💬 Ask me about Marketing Strategy, Innovation, Design thinking and Office 365!
+💬 Ask me about Marketing Strategy, Innovation, Design thinking and Office 365!!
 
 🔭 I graduated from the University of Technology, Sydney with a Triple degree in Business, Creative Intelligence and Innovation, Entrepreneurship (Honours) 
 

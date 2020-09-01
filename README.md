@@ -1,5 +1,5 @@
 ### Hi there!! 👋👋
-...My name is Jerwin! 
+...My name is Jerwin - and I love all things Innovation, Strategy, Marketing and Technology :D 
 
 💬 Ask me about Marketing Strategy, Innovation, Design thinking and Fitness!
 

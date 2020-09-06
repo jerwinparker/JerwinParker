@@ -15,7 +15,7 @@ I love start-ups, learning about the latest trends in Marketing and Innovation.
 
 📫 How to reach me: jerwinparker@ssw.com.au
 
-I love fitness technology! :D 
+I'm in love with Fitness. 
 
 https://www.ssw.com.au/people/jerwin-parker
 

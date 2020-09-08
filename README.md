@@ -3,7 +3,7 @@
 
 💬 Ask me about Marketing Strategy, Innovation, Design thinking and Fitness!
 
-🔭 I graduated from the University of Technology, Sydney with a Triple degree in Business, Creative Intelligence and Innovation, Entrepreneurship (Honours) 
+🔭 I graduated from the University of Technology, Sydney with a Triple degree in Business, Creative Intelligence and Innovation, Entrepreneurship (Honours) --
 
 I love start-ups, learning about the latest trends in Marketing and Innovation. 
 

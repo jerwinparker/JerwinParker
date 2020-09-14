@@ -17,7 +17,7 @@ I love start-ups, learning about the latest trends in Marketing and Innovation.
 
 I'm in love with Fitness. 
 
-https://www.ssw.com.au/people/jerwin-parker
+Check out my awesome people page: https://www.ssw.com.au/people/jerwin-parker
 
 Cheers!
 ### Jerwin

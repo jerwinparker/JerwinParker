@@ -5,7 +5,7 @@
 
 🔭 I graduated from the University of Technology, Sydney with a Triple degree in Business, Creative Intelligence and Innovation, Entrepreneurship (Honours) --
 
-I love start-ups, learning about the latest trends in Marketing and Innovation. 
+I love learning. 
 
 💻 I work at SSW https://www.ssw.com.au/people/jerwinparker as the Marketing and Social Networking Manager 
 

@@ -1,5 +1,5 @@
 ### Hi there!! 👋👋
-...My name is Jerwin Parker Roberto -  I love all things Innovation, Strategy, Marketing and Technology! :D 
+...My name is Jerwin Parker Roberto -  I love all things Innovation, Strategy, Marketing and Technology!
 
 💬 Ask me about Marketing Strategy, Innovation, Design thinking and Fitness!
 
